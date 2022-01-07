@@ -8,7 +8,7 @@ In 2018, I earned my technical software support specialist diploma from Mohawk C
 
 In 2019, I founded an e-commerce marketplace mobile application company called "Often Deals" that would give local businesses the ability to post their products and services on the app and cut commission fees competitors charge to provide the same services.
 
-by June 2020, Often Deals had already failed and I got into a $17,000 debt. A friend introduced me to Crypto Blockchains and NFT flipping, and six months later,  I successfully flippe $3410 into over $300,000 in 8 months.
+by June 2020, Often Deals had already failed and I got into a $17,000 debt. A friend introduced me to Crypto Blockchains and NFT flipping, and six months later,  I successfully flipped $3410 to nearly quarter a million in 8 months.
 
 
 In 2021, I decided to explore different career options and fell in love with data analytics and data science and decided. I took a course in machine learning, NLP and AI, and later on Google Data Analytics course and I love it!
